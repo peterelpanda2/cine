@@ -1,1 +1,1 @@
-# Cine-Pedro
+# Cine
